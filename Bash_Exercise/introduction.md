@@ -1,0 +1,1 @@
+My name is Ishmael Primus. I graduated from Texas Southern University majoring in Computer Science. After college I became a intern at ABC as a IT/Engineer until I got first career job as a media operator. 
